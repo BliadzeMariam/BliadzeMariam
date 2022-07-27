@@ -6,5 +6,6 @@ I love working on projects that make an impact, or projects that bring happiness
 - 📫 If you'd like to collaborate on anything, I'm open to help!
 
 Check my CV ---> https://cv-mariambliadze.netlify.app/
+
 Connect with me on LinkedIn! ---> https://www.linkedin.com/in/mariambliadze
 
